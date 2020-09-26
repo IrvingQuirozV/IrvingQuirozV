@@ -1,8 +1,3 @@
----
-
-
----
-
 <h1 id="section"><img src="http://r67.cooltext.com/rendered/cooltext363693671681099.gif" alt="Rendered Image"></h1>
 <p><img src="https://i.gifer.com/origin/bd/bdb5f1d6e74ef29733053fd1ff52f2e2_w200.gif" alt="enter image description here"></p>
 <h3 id="mi-nombre-es-irving-quiroz">Mi nombre es <strong>Irving Quiroz</strong></h3>
