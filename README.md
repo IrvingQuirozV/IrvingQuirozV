@@ -10,6 +10,8 @@
 🏫Ing. en TIC en el Instituto Tecnológico de Tijuana🐕
 ⛅Desarrollo en la nube con Azure (En curso)
 💻Linux básico en Cisco
+💻Desarrollo HTML y CSS en Google Actívate
+👷👇🏽
 📞Soporte técnico para Telcel
 🔧Ingeriero de soporte en Gpo. Prosperist
 </code></pre>
