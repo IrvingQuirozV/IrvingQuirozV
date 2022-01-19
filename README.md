@@ -1,7 +1,7 @@
 <p><img src="https://i.gifer.com/origin/bd/bdb5f1d6e74ef29733053fd1ff52f2e2_w200.gif" alt="enter image description here"></p>
 <h3 id="mi-nombre-es-irving-quiroz">Mi nombre es <strong>Irving Arael Quiroz Vega</strong></h3>
 <p>Soy originario de <strong>Tijuana, Baja California, México</strong>🌮</p>
-<p>soy egresado de la carrera de<br>
+<p>Soy egresado de la carrera de<br>
 <strong>Ing. en Tecnologías de la información y comunicaciones.</strong><br>
 <img src="https://thumbs.gfycat.com/IndelibleFlawedAfricangroundhornbill-size_restricted.gif" alt="enter image description here"></p>
 <h2 id="preparación-y-experiencia-laboral👇🏽">Preparación y experiencia laboral👇🏽:</h2>
